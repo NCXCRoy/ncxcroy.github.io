@@ -1,1 +1,0 @@
-# ncxcroy.github.io
